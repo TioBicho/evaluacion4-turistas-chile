@@ -1,1 +1,1 @@
-Hola Profesora nose cuando revisara esto pero pido disculpa si esta todo malo ya que no entendi muy bien como funcionaba eh hice muchos cambios para poder llegar a resultado esperado asi que no se asuste si es un desastre el treabajo 
+Hola Profesora nose cuando revisara esto pero pido disculpa si esta todo malo ya que no entendi muy bien como funcionaba eh hice muchos cambios para poder llegar a resultado esperado asi que no se asuste si es un desastre el trabajo 
